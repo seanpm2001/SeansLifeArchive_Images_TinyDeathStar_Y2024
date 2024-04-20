@@ -3,7 +3,7 @@
 
 # Tiny Death Star session
 
-## 2024, Friday, March 29th
+## 2024, Friday, April 5th
 
 <!-- I had a normal length session today, doing some elevator trips, restocking, and working on some difficult assignments (assignments that take a very long time to complete, for me, this means 4 weeks or longer) I finished 1 assignment today, but also felt like the game isn't giving me money for the time I was away. I will have to check previous screenshots. !-->
 
@@ -1081,7 +1081,13 @@ Longer session made up for last weeks non-session
 
 **143**
 
-- My session wa skipped today due to a lack of time, and issues with my work schedule. - 2024, Friday, March 29th
+- My session was skipped today due to a lack of time, and issues with my work schedule. - 2024, Friday, March 29th
+
+## 144
+
+**144**
+
+- My session was skipped again today due to a lack of time, and issues with my work schedule. - 2024, Friday, April 5th
 
 ***
 
